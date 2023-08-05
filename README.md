@@ -7,3 +7,8 @@
 - [David Grusch UFO/UAP bombshells: Ross Coulthart reveals the inside story](https://youtu.be/x_9gTDXF9Vc)
 - [An Interview with Ross Coulthart: UAP, David Grusch, and "Ontological Shock"](https://youtu.be/ZljDzLn1wso)
 - [UFO Sightings at Nuclear Bases (Full Episode) | UFOs: Investigating the Unknown](https://youtu.be/54_bxf7n3Oo)
+
+sch: https://www.youtube.com/results?search_query=newsweek+david+grusch
+
+- [House holds hearing on UFOs, government transparency | full video](https://youtu.be/SNgoul4vyDM)
+- [We Are Not Alone: Live roundtable on historic UFO hearing | NewsNation Prime](https://youtu.be/vUnKRknLVSA)
