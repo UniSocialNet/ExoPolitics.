@@ -16,6 +16,7 @@ sch: https://www.youtube.com/results?search_query=news+nation+david+grusch, http
 - [House holds hearing on UFOs, government transparency | full video](https://youtu.be/SNgoul4vyDM)
 - [We Are Not Alone: Live roundtable on historic UFO hearing | NewsNation Prime](https://youtu.be/vUnKRknLVSA)
 - https://www.newsnationnow.com/space/ufo/david-grusch-defends-ufo-claims-to-bbc/
+- https://www.newsnationnow.com/space/ufo/we-are-not-alone-the-ufo-whistleblower-speaks/
 
 # Richard D. Hall
 Home: https://www.richplanet.net/
