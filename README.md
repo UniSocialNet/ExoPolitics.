@@ -1,7 +1,10 @@
 # ExoPolitics.
 (Exopolitics: A proper term for "Ufology" for the disclosure movement) [🌎 Incredible Testimony from Pentagon on UAPs, UFOs | House Intelligence Hearing Highlights!](https://youtu.be/Awd0KN9P_BA)
 
+# Joe Rogan
 - [Could the Government Keep Knowledge of Aliens a Secret?](https://youtu.be/KK9UjvLibs4)
+
+# David Grusch
 - [US recovered 'non-human biological pilots' from crashed space crafts | UFO Hearing LIVE | WION LIVE](https://youtu.be/NsRiB0Gv4kQ)
 - [UFO hearing: Eyewitnesses describe encounters with "non human" entities to Congress | FULL](https://youtu.be/OwSkXDmV6Io)
 - [David Grusch UFO/UAP bombshells: Ross Coulthart reveals the inside story](https://youtu.be/x_9gTDXF9Vc)
@@ -12,3 +15,8 @@ sch: https://www.youtube.com/results?search_query=newsweek+david+grusch
 
 - [House holds hearing on UFOs, government transparency | full video](https://youtu.be/SNgoul4vyDM)
 - [We Are Not Alone: Live roundtable on historic UFO hearing | NewsNation Prime](https://youtu.be/vUnKRknLVSA)
+- https://www.newsnationnow.com/space/ufo/david-grusch-defends-ufo-claims-to-bbc/
+
+# Richard D. Hall
+Home: https://www.richplanet.net/
+https://www.richplanet.net/aboutus.php
