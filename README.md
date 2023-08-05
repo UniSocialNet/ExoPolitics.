@@ -5,13 +5,13 @@
 - [Could the Government Keep Knowledge of Aliens a Secret?](https://youtu.be/KK9UjvLibs4)
 
 # David Grusch
+sch: https://www.youtube.com/results?search_query=news+nation+david+grusch, https://www.google.com/search?q=David+Grusch+News+Nation+interview
+
 - [US recovered 'non-human biological pilots' from crashed space crafts | UFO Hearing LIVE | WION LIVE](https://youtu.be/NsRiB0Gv4kQ)
 - [UFO hearing: Eyewitnesses describe encounters with "non human" entities to Congress | FULL](https://youtu.be/OwSkXDmV6Io)
 - [David Grusch UFO/UAP bombshells: Ross Coulthart reveals the inside story](https://youtu.be/x_9gTDXF9Vc)
 - [An Interview with Ross Coulthart: UAP, David Grusch, and "Ontological Shock"](https://youtu.be/ZljDzLn1wso)
 - [UFO Sightings at Nuclear Bases (Full Episode) | UFOs: Investigating the Unknown](https://youtu.be/54_bxf7n3Oo)
-
-sch: https://www.youtube.com/results?search_query=newsweek+david+grusch
 
 - [House holds hearing on UFOs, government transparency | full video](https://youtu.be/SNgoul4vyDM)
 - [We Are Not Alone: Live roundtable on historic UFO hearing | NewsNation Prime](https://youtu.be/vUnKRknLVSA)
