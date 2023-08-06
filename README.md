@@ -21,3 +21,8 @@ sch: https://www.youtube.com/results?search_query=news+nation+david+grusch, http
 # Richard D. Hall
 Home: https://www.richplanet.net/
 https://www.richplanet.net/aboutus.php
+
+# news company: NewsNation
+- [Vatican and UFOs? What is in the archives? | Banfield](https://youtu.be/DxeTCk38XTA)
+
+- [Harvard professor believes he may have found alien technology](https://youtu.be/IAyfJ97uMLE)
