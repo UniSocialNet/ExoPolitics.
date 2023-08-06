@@ -22,6 +22,9 @@ sch: https://www.youtube.com/results?search_query=news+nation+david+grusch, http
 Home: https://www.richplanet.net/
 https://www.richplanet.net/aboutus.php
 
+# Case:
+- [The US Airforce Soldier Who Faced Aliens | Retold](https://youtu.be/a3zmWp7gbYo)
+
 # news company: NewsNation
 - [Vatican and UFOs? What is in the archives? | Banfield](https://youtu.be/DxeTCk38XTA)
 - [The Vatican’s “difficult" position on discussing UFOs: Coulthart | Banfield](https://youtu.be/TcINnCwBM3o)
