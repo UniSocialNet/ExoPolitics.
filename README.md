@@ -5,7 +5,7 @@
 - [Could the Government Keep Knowledge of Aliens a Secret?](https://youtu.be/KK9UjvLibs4)
 
 # David Grusch
-sch: https://www.youtube.com/results?search_query=news+nation+david+grusch, https://www.google.com/search?q=David+Grusch+News+Nation+interview
+sch: https://www.youtube.com/results?search_query=news+nation+david+grusch, https://www.google.com/search?q=David+Grusch+News+Nation+interview, https://www.youtube.com/results?search_query=news+nation+david+grusch
 
 - [US recovered 'non-human biological pilots' from crashed space crafts | UFO Hearing LIVE | WION LIVE](https://youtu.be/NsRiB0Gv4kQ)
 - [UFO hearing: Eyewitnesses describe encounters with "non human" entities to Congress | FULL](https://youtu.be/OwSkXDmV6Io)
@@ -24,6 +24,7 @@ https://www.richplanet.net/aboutus.php
 
 # news company: NewsNation
 - [Vatican and UFOs? What is in the archives? | Banfield](https://youtu.be/DxeTCk38XTA)
+- [The Vatican’s “difficult" position on discussing UFOs: Coulthart | Banfield](https://youtu.be/TcINnCwBM3o)
 
 # news company: CBS
 - [Harvard professor believes he may have found alien technology](https://youtu.be/IAyfJ97uMLE)
