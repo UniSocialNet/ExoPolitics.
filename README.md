@@ -26,5 +26,8 @@ https://www.richplanet.net/aboutus.php
 - [Vatican and UFOs? What is in the archives? | Banfield](https://youtu.be/DxeTCk38XTA)
 - [The Vatican’s “difficult" position on discussing UFOs: Coulthart | Banfield](https://youtu.be/TcINnCwBM3o)
 
+# news company: WION
+- [UFOs and aliens: What's the truth? | WION Wideangle](https://youtu.be/Jx8ccunMeug)
+
 # news company: CBS
 - [Harvard professor believes he may have found alien technology](https://youtu.be/IAyfJ97uMLE)
